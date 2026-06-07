@@ -7,6 +7,7 @@
 **Platform:** iOS (Portrait & Landscape)  
 **Date:** June 06, 2026
 
+VİDEO LİNK = https://drive.google.com/file/d/13WTUJ1CR11-PWmK6Yi2p7qsyaf1IczdE/view
 ---
 
 ## 1. Executive Summary
